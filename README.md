@@ -1,2 +1,5 @@
 HII ৻( •̀ ᗜ •́ ৻)
-! [image alt][<img width="736" height="745" alt="Image" src="https://github.com/user-attachments/assets/4259f4b0-2138-4be7-9ce1-fc477cee212c" />]
+
+
+
+! [imagealt][https://github.com/SWEETH3ART-hachi/-/blob/8fda444e1ace9f052c2ad3676e1e02ec54294c13/README.md]
